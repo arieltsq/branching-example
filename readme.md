@@ -1,3 +1,3 @@
-# ThIS IS STUPIDER TITLE 
+# ThIS IS STUPIDER TITLE
 
 fast forward
